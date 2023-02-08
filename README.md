@@ -17,7 +17,8 @@ FEWD 2023 assignment 1
    
 ##### I like puppy.
 
-![cutedog](https://img1.daumcdn.net/thumb/R1280x0/?scode=mtistory2&fname=https%3A%2F%2Ft1.daumcdn.net%2Fcfile%2Ftistory%2F99AEE6425AD486B004)
+![cutedog_way1](https://img1.daumcdn.net/thumb/R1280x0/?scode=mtistory2&fname=https%3A%2F%2Ft1.daumcdn.net%2Fcfile%2Ftistory%2F99AEE6425AD486B004)
+![cutedog_way2](https://user-images.githubusercontent.com/60712439/217628424-7c8ef6d3-9eca-4f42-9b02-8b5b4a99c122.png)
 
 
 If you'd like see stuff check out my [instagram account](https://www.instagram.com/j_julie_s/)
